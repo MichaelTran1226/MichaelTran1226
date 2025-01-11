@@ -2,7 +2,7 @@
 - 👀 I’m interested in java and c language program
 - 🌱 I’m currently learning english for my placement test at fpt  universty
 - 💞️ I’m looking to collaborate on social media 
-- 📫 How to reach me : none
+- 📫 How to reach me : datthanh4177@gmail.com
 - 😄 Pronouns: maximum effort
 - ⚡ Fun fact: i'm banana
 
